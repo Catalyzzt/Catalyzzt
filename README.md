@@ -1,3 +1,3 @@
-I'm Catalyzzt! You can contact me at ben@rowe.com or on Discord at CatalystReality#7840
+I'm Catalyzzt! You can contact me on Discord at CatalystReality#7840
 
-DARE MIGHTY THINGS
+AUDES MANGNALIA
